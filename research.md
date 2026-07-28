@@ -21,7 +21,7 @@ Three particular research projects are occupying me at present:
 My main research interests can be roughly grouped under the following headings. They certainly do not cover everything, as I also publish on topics such as magic, anarchism, and pedagogy, but they cover most:
 
 ### Religion and Violence
-In addition to initiating the MPhil pathway in Religion and Conflict in the Faculty of Divinity in 2020, I have an active research interest in a number of topics within the subject area, including the intersections between religion and terrorism, violence and peace in the origins of Christianity, and the role of violence in apocalyptic movements.
+ addition to initiating the MPhil pathway in Religion and Conflict in the Faculty of Divinity in 2020, I have an active research interest in a number of topics within the subject area, including the intersections between religion and terrorism, violence and peace in the origins of Christianity, and the role of violence in apocalyptic movements.
 
 Here are a couple of examples of my work:
 
