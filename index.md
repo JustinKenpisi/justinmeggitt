@@ -9,7 +9,7 @@ author:
 
 Welcome to my website.
 
-I am a scholar of religion with wide-ranging interests that include religion and violence, slavery, Christian origins, apocalypticism, terrorism, magic, and religious anarchism. I am also fascinated by the reception of Islam in the early modern Anglophone world and somewhat obsessed with earliest Quakerism and Unitarianism. 
+I am a scholar of religion with wide-ranging interests that include religion and violence, slavery, Christian origins, apocalypticism, terrorism, magic in the Roman empire, and religious anarchism. I am also fascinated by the reception of Islam in the early modern Anglophone world and somewhat obsessed with earliest Quakerism and Unitarianism. 
 
 In addition, I have an abiding interest in the critical study of the lived religion of millenarian movements today and the challenges they face. Broadly speaking, I am a historian who draws extensively on methods from religious studies and is open to any approach that can help us better understand the complexities of religion, both past and present. 
 
