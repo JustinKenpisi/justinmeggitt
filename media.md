@@ -11,7 +11,8 @@ I have also provided specialist advice for television dramas, and from time to t
 
 I am always happy to answer questions about the fields within which I work, or to discuss the study of religion more generally. I care a great deal about the public understanding of religion and the need to foster a critical and informed approach to its various forms today. If you think I can be of any help, please don't hesitate to get in touch.
 
-⮕ **For media queries, please contact me at**: [jjm1000@cam.ac.uk](mailto:jjm1000@cam.ac.uk).
+## Contact
 
+For media queries, contact me at [jjm1000@cam.ac.uk](mailto:jjm1000@cam.ac.uk).
 
 
