@@ -68,7 +68,7 @@ This page includes all my publications without distinguishing between the differ
 
 
 
-*'*Losing Books in a "Scriptural Universe"': What Happened to Papias?’ In *The Scriptural Universe of Late Antiquity.* Ed. Emmanouela Grypeou (Salamanca: Universidad Pontificia de Salamanca, 2021), pp. 23-54.
+'Losing Books in a "Scriptural Universe"': What Happened to Papias?’ In *The Scriptural Universe of Late Antiquity.* Ed. Emmanouela Grypeou (Salamanca: Universidad Pontificia de Salamanca, 2021), pp. 23-54.
 
 
 
@@ -76,7 +76,7 @@ This page includes all my publications without distinguishing between the differ
 
 
 
- ‘Does Religion Cause terrorism? The Problem of Religion and the Need for a Better Question.’ *Contemporary Voices: St Andrews Journal of International Relations: Terrorism: Its Past, Present & Future Study A Special Issue to Commemorate CSTPV at 25* (2020), pp. 66-72. Pdf available [here](https://www.justinmeggitt.info/s/In-Response-Does-religion-cause-terroris-Justin-J-Meggitt.pdf)
+ ‘Does Religion Cause Terrorism? The Problem of Religion and the Need for a Better Question.’ *Contemporary Voices: St Andrews Journal of International Relations: Terrorism: Its Past, Present & Future Study A Special Issue to Commemorate CSTPV at 25* (2020), pp. 66-72. Pdf available [here](https://www.justinmeggitt.info/s/In-Response-Does-religion-cause-terroris-Justin-J-Meggitt.pdf)
 
 
 
