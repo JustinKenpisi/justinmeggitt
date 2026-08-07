@@ -9,9 +9,7 @@ author:
 
 Welcome to my website.
 
-I am a scholar of religion with wide-ranging interests that include religion and violence, slavery, Christian origins, apocalypticism, terrorism, magic in the Roman empire, and religious anarchism. I am also fascinated by the reception of Islam in the early modern Anglophone world and somewhat obsessed with earliest Quakerism and Unitarianism. 
-
-In addition, I have an abiding interest in the critical study of the lived religion of millenarian movements today and the challenges they face. Broadly speaking, I am a historian who draws extensively on methods from religious studies and is open to any approach that can help us better understand the complexities of religion, both past and present. 
+I am a scholar of religion with wide-ranging interests that include the study of earliest Christianity but also the relationship between religion and violence, slavery, terrorism, magic, and anarchism. I am also fascinated by the reception of Islam in the early modern Anglophone world and somewhat obsessed with the part early Quakerism and Unitarianism played in this. In addition, I have an abiding interest in the critical study of the lived religion of millenarian movements today and the challenges they face, as well as apocalypticism more generally. Broadly speaking, I am a historian who draws extensively on methods from religious studies and is open to any approach that can help us better understand the complexities of religion, both past and present. 
 
 I am currently Professor of the Study of Religion in the University of Cambridge, and a Fellow of Wolfson College. I have also been a Visiting Researcher at the Department of Ethnology, History of Religions and Gender Studies at Stockholm University since 2012. 
 
