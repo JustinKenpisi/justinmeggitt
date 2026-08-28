@@ -232,7 +232,7 @@ This page includes all my publications without distinguishing between the differ
 
 
 
-‘Artemidorus and the Johannine Crucifixion.’ *Journal of Higher Criticism*. 5 (1998), 203-208. Pdf available[ here.](https://www.justinmeggitt.info/s/Artemidorus-and-the-Johannine-Crucifixion.pdf)
+‘Artemidorus and the Johannine Crucifixion.’ *Journal of Higher Criticism* 5 (1998), 203-208. Pdf available[ here.](https://www.justinmeggitt.info/s/Artemidorus-and-the-Johannine-Crucifixion.pdf)
 
 
 
