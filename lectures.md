@@ -7,7 +7,7 @@ permalink: /lectures/
 
 *I have only begun keeping a record of these in the last decade.*
 
-'The Apocalyptic Littoral: Conceptualising Christadelphianism', British Association for the Study of Religion (BASR)/Irish Society for the Academic Study of Religions (ISASR), annual conference, 20 August 2026. 
+'The Apocalyptic Littoral: Conceptualising Christadelphianism', British Association for the Study of Religion (BASR)/Irish Society for the Academic Study of Religions (ISASR), annual conference, Dublin City University, 20 August 2026. 
 
 'The Apocalyptic Littoral: Conceptualising Christadelphianism', Stockholm University, Högre seminariet i religionshistoria, 27 January 2026.
 
