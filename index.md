@@ -11,7 +11,7 @@ I am a scholar of religion with wide-ranging interests. These encompass the stud
 
 I am currently Professor of the Study of Religion in the University of Cambridge, and a Fellow of Wolfson College. I have also been a Visiting Researcher at the Department of Ethnology, History of Religions and Gender Studies at Stockholm University since 2012. 
 
-I established and currently coordinate the MPhil Pathway in Religion and Conflict in the Faculty of Divinity and also oversee the [*Centre for the Critical Study of Apocalyptic and Millenarian Movements*](https://censamm.org/) that I helped found in 2015. 
+I established and coordinate the MPhil Pathway in Religion and Conflict in the Faculty of Divinity and also oversee the [*Centre for the Critical Study of Apocalyptic and Millenarian Movements*](https://censamm.org/) that I helped found in 2015. 
 
 I also supervise postgraduates in all my areas of research interest — ancient, early modern, and contemporary — and am always happy to talk to prospective students.
 
